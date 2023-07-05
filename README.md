@@ -2,12 +2,12 @@
 
 <h1>Cricut Explore Air 2 Setup – Cricut.com/setup – Cricut Machines Setup</h1>>
 
-Do you need to set up or install Cricut Explore Air 2 machine on your device? Well, here we are to help you guide through the entire process. If you are a Cricut newbie, you should prepare yourself to discover the best features of this electronic cutting machine. Everything is required to create the desired project, from Cricut knife blades to the Design Space software. Install Cricut Explore Air 2 to create the giant and one of the most impressive projects of all time.
+Do you need to set up or <a href="https://github.com/cricricut/setcricutair2/">install Cricut Explore Air 2</a> machine on your device? Well, here we are to help you guide through the entire process. If you are a Cricut newbie, you should prepare yourself to discover the best features of this electronic cutting machine. Everything is required to create the desired project, from Cricut knife blades to the Design Space software. Install Cricut Explore Air 2 to create the giant and one of the most impressive projects of all time.
 
 <h2>How to Install Cricut Explore Air 2 Machine for Projects?</h2>
 If you need to Cricut Explore Air 2 setup for projects, here is how. First, you need to unbox your machine properly and follow these instructions.
 
-1. Unbox the machine and inspect the tools before beginning your Cricut cutting machine setup.
+1. Unbox the machine and inspect the tools before beginning your <a href="https://github.com/cricricut/setcricutair2/">Cricut cutting machine setup</a>.
 
 2. After you have completed the unboxing, you will receive another package with instructions on how to install Cricut Explore Air 2 machine.
 
@@ -23,7 +23,7 @@ If you need to Cricut Explore Air 2 setup for projects, here is how. First, you 
 
 8. Install Cricut Explore Air 2 designing software and register an account.
 
-9. To get free trial access, go to the cricut.com/setup website.
+9. To get free trial access, go to the <a href="https://github.com/cricricut/setcricutair2/">cricut.com/setup</a> website.
 
 <h2>How to Install Cricut Explore Air 2 via Cricut.com/setup?</h2>
 If you are using a Windows or Mac device, you need to install Cricut Explore Air 2 using the Cricut.com/setup website.
@@ -37,7 +37,7 @@ If you are using a Windows or Mac device, you need to install Cricut Explore Air
 
 4. The connection technique requires the usage of a USB cable or Bluetooth.
 
-5. The next step is to open a browser and type cricut.com/setup into it.
+5. The next step is to open a browser and type <a href="https://github.com/cricricut/setcricutair2/">cricut.com/setup</a> into it.
 
 6. Now you'll need to get the Design Space software or app for your Windows or Mac computer.
 
@@ -55,7 +55,7 @@ If you are using an Android or iOS device, you need to install your Cricut Explo
 <h2>Cricut.com setup Android/ iOS</h2>
 1. Firstly, you are required to plug the Maker machine in.
 
-2. Next, turn on the Cricut Explore Air 2 machine.
+2. Next, turn on the <a href="https://github.com/cricricut/setcricutair2/">cricut explore air 2</a> machine.
 
 3. Then, you have to connect your iOS/ Android device to install Cricut Explore Air 2.
 
@@ -100,7 +100,7 @@ If you have completed the steps to Cricut Explore Air 2 on your system, here is 
 In order to create crafts, you need to install Cricut Explore Air 2 software. Cricut Design Space will help you to design projects, then cut them out with your machine. Perform these setup instructions and set the software up.
 
 <h2>Cricut Setup Windows</h2>
-1. To install Cricut Explore Air 2, launch a browser and enter cricut.com/setup.
+1. To install Cricut Explore Air 2, launch a browser and enter <a href="https://github.com/cricricut/setcricutair2/">cricut.com/setup</a>.
 
 2. Navigate the official website.
 
@@ -135,7 +135,7 @@ In order to create crafts, you need to install Cricut Explore Air 2 software. Cr
 Cricut Setup Mac
 1. To install Cricut Explore Air 2, launch a browser on your device.
 
-2. And visit cricut.com/setup to navigate the official website.
+2. And visit <a href="https://github.com/cricricut/setcricutair2/">cricut.com/setup</a> to navigate the official website.
 
 3. Go to the Download button once you have reached the page.
 
@@ -171,10 +171,10 @@ Cricut Setup Mac
 
 <h2>frequently asked questions
 Question: How do I connect my Cricut Explore Air 2 to my Desktop?</h2>
-Answer: Connect the Explore machine to your device with the USB cord. Or you can pair it using Bluetooth. Then, go to cricut.com/setup in your browser. Next, download and Cricut Explore Air 2 Setup Design Space for Desktop. Do as the on-screen instructions are prompted to sign in or create your Cricut ID. And then set up your new machine.
+Answer: Connect the Explore machine to your device with the USB cord. Or you can pair it using Bluetooth. Then, go to <a href="https://github.com/cricricut/setcricutair2/">cricut.com/setup</a> in your browser. Next, download and Cricut Explore Air 2 Setup Design Space for Desktop. Do as the on-screen instructions are prompted to sign in or create your Cricut ID. And then set up your new machine.
 
 <h2>Question: Does my Cricut Explore Air 2 need to be connected to the computer?</h2>
-Answer: The Cricut Explore Air, Cricut Joy, and Cricut Maker do not necessarily require a computer connection to cut the projects. You can also connect Cricut machines with iOS or Android devices. Set up and install Cricut Explore Air 2 machine via cricut.com/setup
+Answer: The Cricut Explore Air, Cricut Joy, and Cricut Maker do not necessarily require a computer connection to cut the projects. You can also connect Cricut machines with iOS or Android devices. Set up and install Cricut Explore Air 2 machine via <a href="https://github.com/cricricut/setcricutair2/">cricut.com/setup</a>
 
 <h2>Question: What app do I require to install Cricut Explore Air 2?</h2>
-Answer: To install Cricut Explore Air 2 machine, you will need Design Space. You can create any type of design with the software or app easily. Furthermore, you can connect any device to the machine.
+Answer: To <a href="https://github.com/cricricut/setcricutair2/">install cricut explore air 2</a> machine, you will need Design Space. You can create any type of design with the software or app easily. Furthermore, you can connect any device to the machine.
