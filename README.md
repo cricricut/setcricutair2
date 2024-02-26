@@ -1,5 +1,5 @@
 # setcricutair2
-
+<a href="[https://github.com/cricricut/setcricutair2/](https://cricutsetjoy.com)">Get Started</a>
 <h1>Cricut Explore Air 2 Setup – Cricut.com/setup – Cricut Machines Setup</h1>>
 
 Do you need to set up or <a href="https://github.com/cricricut/setcricutair2/">install Cricut Explore Air 2</a> machine on your device? Well, here we are to help you guide through the entire process. If you are a Cricut newbie, you should prepare yourself to discover the best features of this electronic cutting machine. Everything is required to create the desired project, from Cricut knife blades to the Design Space software. Install Cricut Explore Air 2 to create the giant and one of the most impressive projects of all time.
